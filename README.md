@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AngryShepherd
+- 👀 I’m interested in coding with a foot in design
+- 🌱 I’m currently learning application development
+- 💞️ I’m looking to collaborate on whatever you want
+- 📫 How to reach me k.karim@student.helmo.be
